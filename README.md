@@ -1,2 +1,0 @@
-# coursess
-ok
